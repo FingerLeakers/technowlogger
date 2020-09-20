@@ -206,3 +206,10 @@ singhpushpender250@gmail.com or <a href="https://technowlogy.tk/contact-us">Cont
 - [ ] PayPal Address: PayPal.me/anonyindia
 
 ## More Features Coming Soon...
+
+
+</BR>
+
+<a href="https://golden-farm.biz/?r=1673249" target="_blank">
+<img src="https://golden-farm.biz/images/promo/en/728x90.gif"
+alt="Profit every 10 minutes!"></a>
